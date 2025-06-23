@@ -9,4 +9,4 @@ My name is Amante' Woodley
 * 👨‍🏫 Math and Computer Science Tutor since Fall 2024.
 * 🔝 Mentor for new DNIMAS Scholars.
 * 🌱 Always strive to learn new things.
-* 📨 Here's how to reach me [here](a.e.woodley@spartans.nsu.edu).
+* 📨 Here's how to reach me at a.e.woodley@spartans.nsu.edu.
